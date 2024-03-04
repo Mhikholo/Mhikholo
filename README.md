@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me igelugbomichael@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: Love to play football and tzbld tennis
+- ⚡ Fun fact: Love to play football and table tennis
 
 <!---
 Mhikholo/Mhikholo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
